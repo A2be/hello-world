@@ -10,4 +10,6 @@ Now, of course, for richer human relations, it could be the case that persons ma
 
 In Moby Dick, we see Captain Ahab did this when, with an injured and gangrenous leg, he asked his crew to do in the future what he was binding himself to in the present.  He wanted his leg amputated above the infected tissue, and to be held down to the table/mast by strong men while it was done, despite what he might be inclined to tell them in the moment as he expereinced the great pain of cutting sans anesthesia.  
 
-This sort of binding arrangement is called "contract."  I submit that we will find a more meaningful life when we make such binding commitments to one another than a world where we do not. 
+In other words, Captain Ahab wanted to bind his _future self_ to a future decision that was voluntarily made and committed to by his _present self_ .
+
+This sort of binding arrangement is called "**contract**."  I submit that we will find a more meaningful life when we make such binding commitments to one another than a world where we do not. 
