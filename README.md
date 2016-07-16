@@ -12,4 +12,4 @@ In Moby Dick, we see Captain Ahab did this when, with an injured and gangrenous 
 
 In other words, Captain Ahab wanted to bind his _future self_ to a future decision that was voluntarily made and committed to by his _present self_ .
 
-This sort of binding arrangement is called "**contract**."  I submit that we will find a more meaningful life when we make such binding commitments to one another than a world where we do not. 
+This sort of binding arrangement is called "**contract**."  I submit that we will find a more meaningful life where the _rules of the game_ or _institutions_, broadly considered, allow the making of such binding commitments to one another than we would in a world where we do not. 
